@@ -112,3 +112,6 @@ https://www.gov.uk/government/speeches/nhs-prescription-charges-from-april-2019
 以下联系方式均已得到许可，大家可以联系他们，咨询相关事宜。
 
 LinkedIn, Glassdoor，Stack Overflow，Indeed是比较寻常的，还有就是各大公司网站。timothyshen1@hotmail.com 欢迎询问英国信息
+
+由于我们公司没有什么正统的开发部门，所以无法提供招聘还请谅解。
+
